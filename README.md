@@ -1,6 +1,6 @@
 # Demonstrate for Ukraine
 
-![grafik](https://user-images.githubusercontent.com/58906368/155959536-97d8de47-6bf9-4f97-9aaa-095a0cefc002.png)
+![grafik](https://user-images.githubusercontent.com/58906368/155966603-37e0141a-ccff-4953-857a-3cb97e1e1910.png)
 
 
 I do not belong to any company or organization but provide these posters privately. It is important to me that these posters should not attack anyone personally.
