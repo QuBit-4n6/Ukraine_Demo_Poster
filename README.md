@@ -14,6 +14,8 @@ I hope that the people in Ukraine and the people in Russia will see that many ci
 Let's support Ukraine to end the war as soon as possible.
 Please feel free to share this link.
 
+I continue to work on new posters and ideas.
+
 https://github.com/QuBit-4n6/Ukraine_Demo_Poster
 
 Let us stop this war!
