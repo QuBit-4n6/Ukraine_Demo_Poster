@@ -1,7 +1,12 @@
-# Demonstrate for Ukraine
+# Demonstrate for Ukraine. Демонстрація за Україну
 
 ![grafik](https://user-images.githubusercontent.com/58906368/155966603-37e0141a-ccff-4953-857a-3cb97e1e1910.png)
 
+## For refugees from Ukraine. Для біженців з України
+
+![grafik](https://user-images.githubusercontent.com/58906368/156135229-a72762e7-fb64-4c00-93be-66d050d8a6cf.png)
+
+Apologies for errors in translation. I unfortunately do not speak Ukrainian.
 
 I do not belong to any company or organization but provide these posters privately. It is important to me that these posters should not attack anyone personally.
 
